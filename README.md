@@ -1,4 +1,4 @@
-# drama.gg delete post
+# drama.gg some some bullshit idk
 https://drama.gg/d/216-fake-news-by-navo-hosting-owner
 idk what dis is but it stoopid
 
