@@ -72,8 +72,10 @@ https://drama.gg/d/568-relehost-another-cheap-copy-of-velocitynodes
 just a theme of whmcs
 
 https://drama.gg/d/939-the-scumbags-of-poundland-plc
-could be more proof but it was deleted making the thread more pointless (ontop and bottom)
+could be more proof but it was deleted making the thread more pointless 
+
 https://drama.gg/d/930-the-wrong-doing-of-poundland-plc-screenshots-provided
+could be more proof but it was deleted making the thread more pointless
 
 https://drama.gg/d/887-free-hostingpaid-hosting
 bro got disproved on ur on thread
